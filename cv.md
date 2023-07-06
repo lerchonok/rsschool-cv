@@ -11,7 +11,9 @@ Now I am studying at ITMO University in my second year and decided to add knowle
 
 Also, English is taught at the university according to the levels of students. Now I have graduated from level B2, now I have switched to C1. But I also try to gain experience of speech on my own. For example, reading books and watching movies in English.
 
-Example of a task to be solved when registering on Codewars:
+---
+
+***Example of a task to be solved when registering on Codewars:***
 
 *This code does not execute properly. Try to figure out why.*
 
