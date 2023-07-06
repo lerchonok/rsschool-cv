@@ -1,9 +1,9 @@
-![image](https://github.com/lerchonok/rsschool-cv/assets/91780226/77231d13-125b-4d09-9d96-898425259d0b)# Valeria Demina
+# Valeria Demina
 
 tg: @milanhomanshitsa
 dc: valeria demina#0411
 
-![me](![image](https://github.com/lerchonok/rsschool-cv/assets/91780226/cac725d3-1aaf-4e62-a2ba-6c180e7577f9))
+![image](https://github.com/lerchonok/rsschool-cv/assets/91780226/77231d13-125b-4d09-9d96-898425259d0b)
 
 From friends I learned about . I got acquainted with the principles of the school and I was very interested. I appreciate that the school helps to broaden the horizons, but students should fill in the knowledge themselves. I think this is a great approach to learning, because everything comes with experience. According to my feelings, this is a comfortable training for me, since I am quite diligent and attentive. Also, helping other students helps me practice a lot.
 
